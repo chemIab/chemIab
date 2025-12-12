@@ -2,7 +2,7 @@
     ‎ 
 </p>
 <p align="center"> 
-　
+<img src="https://blob.gifcities.org/gifcities/TIY45LJJRASDSD7JYLHG6I7HKFX4GQL2.gif" />
 </p>
 
 <p align="center">
@@ -18,7 +18,7 @@
     ‎ 
 </p>
 <p align="center"> 
-<a href="https://likearecord.straw.page">strwpage</a>‎ 　　　‎﹒　　　 <a href="https://poopfart.atabook.org">atabook</a>‎‎
+<a href="https://likearecord.straw.page">strwpage</a>‎ 　　‎﹒　　 <a href="https://poopfart.atabook.org">atabook</a>‎‎
 </p>
 <p align="center"> 
     ‎ 
