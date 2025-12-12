@@ -1,5 +1,3 @@
 
 
-<!--<p align="center/right">
-wtf
-</p>
+<!--<p align="center/right"> wtf </p>
