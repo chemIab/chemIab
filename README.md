@@ -1,3 +1,3 @@
-<p align="center/right"> 
+<p align="center"> 
 farts
 </p>
