@@ -2,7 +2,7 @@
     ‎ 
 </p>
 <p align="center"> 
-AHHHHHHHHHHHHHHHH!!!!!!!!!!!!!!!!!!!
+AHHHHHHHHHH!!!!!!!!!!!!!!!!!!!
 </p>
 
 <p align="center">
