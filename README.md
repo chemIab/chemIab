@@ -14,14 +14,11 @@
 </p>
 
 <p align="center"> 
-    ‎ 
-</p>
-<h2></h2>
-<p align="center"> 
+    ‎
     ‎ 
 </p>
 <p align="center"> 
-<a href="https://likearecord.straw.page">strwpage</a>‎ 　　‎﹒　　 <a href="https://poopfart.atabook.org">atabook</a>‎‎
+<a href="https://likearecord.straw.page">strwpage</a>‎ 　　　　‎﹒　　　　 <a href="https://poopfart.atabook.org">atabook</a>‎‎
 </p>
 <p align="center"> 
     ‎ 
